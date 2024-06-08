@@ -1,4 +1,4 @@
-# Gen-Ekonomistler-Kul-b-
+# Genc-Ekonomistler-Kulubu
 Genç Ekonomistler Kulübü Tanıtım Metni
 
 # 💫 About Me:
